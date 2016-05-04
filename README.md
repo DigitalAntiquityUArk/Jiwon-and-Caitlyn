@@ -1,3 +1,3 @@
 # marcia
 Marcia's grave 
-Jiwon Bae and Caityln Hirsh
+Jiwon Bae and Caitiln Hirsh
